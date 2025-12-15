@@ -6,6 +6,7 @@ Actualment estic motivat per adquirir noves experiències que em permetin desenv
 
 Estic convençut que l’esforç, la constància i les ganes de millorar són claus per assolir qualsevol objectiu.
 
+---
 
 # **CURRÍCULUM VITAE**
 
